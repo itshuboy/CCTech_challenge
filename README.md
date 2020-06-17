@@ -1,1 +1,0 @@
-# CCTech_challenge
